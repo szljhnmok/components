@@ -1,0 +1,1 @@
+﻿sima fekete footer középrezárt fehér szöveggel és rózsaszín linkekkel
